@@ -1,0 +1,1 @@
+Social Imaginary: Charles Taylor (2004) “The ways people imagine their social existence, how they fit together with others, and how things go on between them.”
